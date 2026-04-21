@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور روحي في العتمات
+> بيننا سر لا يموت
+> في عيونك أرى السماوات
+> ويغمرني هذا السكوت
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
